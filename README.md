@@ -40,5 +40,5 @@ DNI ; THIS APPLIED TO ALL! If I have this, DO NOT INTERACT TO ME AT ALLL!!! INCL
 
 ![Tumblr Picture](https://64.media.tumblr.com/5f859d4a00a21d09f869021c61d54168/a4f01f5006db971f-4b/s2048x3072/9977575db68f00fbbd50b426f065309b06aa0c15.png)
 
-Okay A Bit About Me!
-(wip, I'll make my pronouns page soon.)
+Okay, all about me now!
+Pronouns page ; https://en.pronouns.page/@P13SPR0N0UNSP4G3
