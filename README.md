@@ -47,7 +47,7 @@ https://en.pronouns.page/@P13SPR0N0UNSP4G3
 
 Discomforts (because some people always say some crazy things to me) ;
 1. 18+ jokes or 18+ in general.
-2. crazy gore. like "TEARING UR LIMBS APART ONE BY ONE AS YOU BLEED OUT AND BEG FOR MERCY" and also deep scars that shows the insane of the skin. makes me wanna throw up.
+2. crazy gore. like "TEARING UR LIMBS APART ONE BY ONE AS YOU BLEED OUT AND BEG FOR MERCY" and also deep scars that shows the inside of the skin. makes me wanna throw up.
 3. interrupting me and switching the topics, yeah I dont like this one.
 4. randomly coming up to me and just stare?
 5. saying random bs that can make me upset/cry irl like "its bc you are 8" hello i was doing anons but okay !
