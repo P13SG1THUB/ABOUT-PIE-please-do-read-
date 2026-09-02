@@ -1,5 +1,5 @@
 # ABOUT-PIE-please-do-read-
-![Tumblr Picture](https://64.media.tumblr.com/513ff5b05bf06e686d5667a211b21851/33244caa36c890f6-93/s640x960/ab116d58f042959b145b8ef6d0afca1d9fce0e1f.png)
+![Tumblr Picture](https://64.media.tumblr.com/0a37ac36dda610cea1b9f8b3a4f74970/33244caa36c890f6-94/s640x960/dd70e4352e00f5b9524d7ac62b9fbff6c30ae127.png)
 ![My Tumblr Picture](https://64.media.tumblr.com/8d4012d4e8e66325317f99229096280b/54618f081c61644a-b1/s1280x1920/2f80c9811b0eb9ec1aa3366b8a2331795d6e9403.png)
 ʜɪ ꜰᴇʟʟᴏᴡ ᴘᴏɴɪᴇꜱ! ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ɢ1ᴛʜᴜʙ!!! 
 
@@ -45,7 +45,22 @@ Pronouns page ;
 
 https://en.pronouns.page/@P13SPR0N0UNSP4G3
 
-![Tumblr Picture](https://64.media.tumblr.com/513ff5b05bf06e686d5667a211b21851/33244caa36c890f6-93/s640x960/ab116d58f042959b145b8ef6d0afca1d9fce0e1f.png)
+Discomforts (because some people always say some crazy things to me) ;
+1. 18+ jokes or 18+ in general.
+2. crazy gore. like "TEARING UR LIMBS APART ONE BY ONE AS YOU BLEED OUT AND BEG FOR MERCY" and also deep scars that shows the insane of the skin. makes me wanna throw up.
+3. interrupting me and switching the topics, yeah I dont like this one.
+4. randomly coming up to me and just stare?
+5. saying random bs that can make me upset/cry irl like "its bc you are 8" hello i was doing anons but okay !
+
+uhh my dnis
+1. zoos.
+2. pedos.
+3. rude or mean ppl.
+4. age players.
+5. racists.
+(note: ill interact to everyone as long as they understand my boundary.)
+
+![Tumblr Picture](https://64.media.tumblr.com/0a37ac36dda610cea1b9f8b3a4f74970/33244caa36c890f6-94/s640x960/dd70e4352e00f5b9524d7ac62b9fbff6c30ae127.png)
 
 Okay some silly art time!
 ![Tumblr Picture](https://64.media.tumblr.com/52266bca2757d1c15190010aff8f3df1/33244caa36c890f6-88/s640x960/c8cca1e3d42aab45fdc0f5d1df013f2fd6509247.png)
