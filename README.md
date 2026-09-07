@@ -1,4 +1,5 @@
 # ABOUT-PIE-please-do-read-
+![Ford EcoSport GIF](https://media.tenor.com/C4_vMms6tGMAAAAC/ford-ecosport.gif)
 ![Tumblr Picture](https://64.media.tumblr.com/0a37ac36dda610cea1b9f8b3a4f74970/33244caa36c890f6-94/s640x960/dd70e4352e00f5b9524d7ac62b9fbff6c30ae127.png)
 ![My Tumblr Picture](https://64.media.tumblr.com/8d4012d4e8e66325317f99229096280b/54618f081c61644a-b1/s1280x1920/2f80c9811b0eb9ec1aa3366b8a2331795d6e9403.png)
 ʜɪ ꜰᴇʟʟᴏᴡ ᴘᴏɴɪᴇꜱ! ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ɢ1ᴛʜᴜʙ!!! 
